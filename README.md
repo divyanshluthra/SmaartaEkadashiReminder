@@ -1,1 +1,1 @@
-Ekadashi vrat tithi calculated as per Smaarta tradition, you will get reminders since 2 days prior.
+Ekadashi vrat tithi calculated as per Smaarta tradition, you will get reminders since 2 days prior. There is also every vrat katha(fasting story), which is sourced from authentic publications of Gita Press, Gorakhpur.
